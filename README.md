@@ -1,0 +1,13 @@
+- 👋 Hi, I’m @DRIXJOB
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+
+<!---
+DRIXJOB/DRIXJOB is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->écouter attentivement j'ai perdu le contrôle besoin 
+d'aide  si vous pouvez prendre tout en main mon site et mon ordinat
+Eordinateur ajirr s'il vous plais.j'ai pas une pour transmettre
+ 
